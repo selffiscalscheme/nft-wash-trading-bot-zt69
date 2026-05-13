@@ -1,4 +1,4 @@
-# 
+# ultimate nft wash trading bot | multi-wallet-support + NFT-sniping is the best nft wash trading bot, featuring multi-wallet-support and NFT-sniping. Fast, smart, and optimized for
 
 
 
